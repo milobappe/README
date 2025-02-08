@@ -30,7 +30,7 @@ I'm just starting out, so any advice, feedback, or collaboration is welcome! Fee
 
 I'm always open to meeting new people and learning from others. You can reach me at:
 - **Email**: [a.wafiyhm@gmail.com]
-- **LinkedIn**: [(https://www.linkedin.com/feed/)]
+- **LinkedIn**: [(https://www.linkedin.com/in/amin-wafiy-42a7ab27b/)]
 
 ---
 
